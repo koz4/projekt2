@@ -1,1 +1,1 @@
-zapisałem zmiany nowe
+dupa blada
